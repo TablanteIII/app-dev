@@ -18,4 +18,6 @@
 > The gang was guilty of drug trade, threats, assault, extortion, bribery, and many more illegal activities during their reign between 1880 and 1910.
 > Tommy Shelby has faced alot of challenges throughout the whole series due to rivalries, drugs, and anything that puts them at an advantage over their enemies.
 
+![Peeky-Blinders-Movie-Trailer](https://github.com/TablanteIII/app-dev/assets/152585358/fbaacc6f-25fd-4da8-9b66-bcbd058afcdd)
+
 
